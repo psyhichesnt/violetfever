@@ -5,5 +5,11 @@
 
 ⠀⠀⠀⠀doll⠀ vamp⠀ love⠀ <img src="https://cdn.discordapp.com/emojis/1148420707009691738.gif?size=96&quality=lossless">⠀ no they
 
-[ 𝘳𝘦𝘢𝘥 𝘳𝘦𝘯𝘵𝘳𝘺 .](https://rentry.org/hrtcrsh)
+ ⠀⠀⠀⠀◟♡ acti 04/09 <img src="https://caterpie.crd.co/assets/images/gallery35/23ad5a8a.gif?v=31fdc6f6">
+⠀morgue's chuuya . <img src="https://media.discordapp.net/attachments/860333357169508355/1161884959775146004/WINE_GLASS.gif?ex=6539ecb1&is=652777b1&hm=8d86d7e0b363c6a069603323c0c0b91bfb52d1c96360b63b868acb26c735c419&=">
+
+
+
+<img src="https://caterpie.crd.co/assets/images/gallery20/7d366ec1.png?v=31fdc6f6"> [𝘳𝘦𝘢𝘥 𝘳𝘦𝘯𝘵𝘳𝘺 .](https://rentry.org/hrtcrsh)
+
 
