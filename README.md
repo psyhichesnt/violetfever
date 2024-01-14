@@ -5,5 +5,5 @@
 
 ⠀⠀⠀⠀doll⠀ vamp⠀ love⠀ <img src="https://cdn.discordapp.com/emojis/1148420707009691738.gif?size=96&quality=lossless">⠀ no they
 
-𝘳𝘦𝘢𝘥 𝘳𝘦𝘯𝘵𝘳𝘺 .
+[ 𝘳𝘦𝘢𝘥 𝘳𝘦𝘯𝘵𝘳𝘺 .](https://rentry.org/hrtcrsh)
 
