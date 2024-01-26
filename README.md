@@ -11,6 +11,5 @@
 
 
 
-<img src="https://caterpie.crd.co/assets/images/gallery20/7d366ec1.png?v=31fdc6f6"> [𝘳𝘦𝘢𝘥 𝘳𝘦𝘯𝘵𝘳𝘺 .](https://rentry.org/hrtcrsh) . [patreon .](https://www.patreon.com/violetx/about)
-
+<img src="https://caterpie.crd.co/assets/images/gallery20/7d366ec1.png?v=31fdc6f6"> [𝘳𝘦𝘢𝘥 𝘳𝘦𝘯𝘵𝘳𝘺 .](https://rentry.org/hrtcrsh)
 
