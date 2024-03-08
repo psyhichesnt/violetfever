@@ -6,5 +6,6 @@
 <p align="center"> doll⠀ vamp⠀ love⠀ <img src="https://cdn.discordapp.com/emojis/1148420707009691738.gif?size=96&quality=lossless">⠀ no they
 
 <p align="center"> ◟♡ acid 04/09 <img src="https://caterpie.crd.co/assets/images/gallery35/23ad5a8a.gif?v=31fdc6f6">
-<p happy bday to me ^_^>
+  
+happy bday to me ^_^
 ⠀
